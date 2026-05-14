@@ -1,4 +1,4 @@
-# 
+# AI-powered Automation for degen coin sniper bot | buy-pressure-analysis & multi-wallet-support offers the most advanced degen coin sniper bot, with buy-pressure-analysis and
 
 
 
